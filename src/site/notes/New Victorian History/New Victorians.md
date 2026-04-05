@@ -1,0 +1,34 @@
+---
+{"dg-publish":true,"permalink":"/new-victorian-history/new-victorians/","dg-note-properties":{}}
+---
+
+New Victorians are the people of [[New Victorian Government/New Victoria\|New Victoria]] that originated from the [[New Victorian History/New Victorian Colony Ships\|New Victorian Colony Ships]]. New Victorians are a tall and naturally strong people. having strong genetic traits from their ancient ancestors as well as [[New Victorian History/New Victorian Evolution\|New Victorian Evolution]]. 
+
+**Standard New Victorian**
+
+New Victorians are to be considered beyond the peak of ancestor human anatomy. Males stand at an average of six foot ten inches while females are at an average height of 7 foot three inches, but with immense muscular features. 
+
+New Victorian anatomy begins to differ greatly from their ancestors at the nervous system with stronger tissue and more efficient pathways, leading to near instant reaction to external stimuli. The skeletal system has evolved the most of any part of the human body. New Victorian bone structure is dense and more importantly, layered, allowing a bones continued use while healing breaks and fractures. Simple changes include thicker ribs as well as connecting the floating ribs to the false ribs for reduced breaks, deeper bends in the lower arm and lower leg bones for greater range of rotational movement, and better movement and protection in the spinal column. 
+
+Muscle fibers in the New Victorian body have also become denser and harder to tear, making it harder to build muscle but easier to maintain prolonged muscle use, a definite evolutionary trait following the evolution of the brain. Denser muscle fiber is to blame for New Victorian's "natural strength". 
+
+The organs are also made tougher to compensate for the New Victorian body. The lungs are larger for greater oxygen intake while the Alveoli are covered in a sponge like part that filters toxins and disposes of it as waste. The diaphragm is thicker for more rapid and stronger breathing. 
+
+The stomach is larger, has a stronger lining, and is physically align to combat acid reflux when stronger stomach acid is needed for harsher foods. The liver has doubled in size to account for the number of new functions as well as for greater cleaning and filtration. The pancreas is largely unchanged save for its size. The kidneys have each doubled in size to compensate for the amount of blood being cleaned and the toxins being filtered. The gall bladder is thicker, maintaining harsher acid for tougher foods.  The large and small intestine absorbs more nutrients, producing less waste and maintains stable caloric intake without sacrificing more time on eating. The appendix is larger and is less prone to inflammation and infection.   
+
+The New Victorian body has removed organs no longer needed or useless, most vestigial organs had been left beyond long before modern New Victorians. Wisdom teeth, plica semilunaris, and the tailbone are non-existent in New Victorian anatomy while other, previously useful organs, have also been phased out of the body. New Victorians do not have spleens, the role being given as an extra function of the liver. The thymus gland is also not present at birth, the immune system already for threats inherited by the mother. Many muscles have disappeared from the body to save weight and space. 
+
+Some previously vestigial organs have their functions returned, such as the Vomeronasal organ which gives New Victorians their animal like sense of smell. Scientific studies have shown that younger New Victorians have a more developed Vomeronasal organ and can smell chemical changes in bodily secretions.
+
+The two most important organs for the body have undergone the most change behind the skeletal system. Both the brain and the heart are different from their original structure to take on the role of providing for the body. 
+
+The heart of a New Victorian is unrecognizable compared to an ancient human, having doubled each valve, artery, and cavity. Two right ventricles, two left ventricles, two right atriums, and two left atriums pump in opposing timing more similar to a four cylinder engine than a human heart. The muscles in the heart are the thickest in the New Victorian body, enough to sustain 80 - 120 Bpm pumping 12 liters of blood a minute at rest. The heart evolved to support the evolved circulatory system which developed a secondary system to support the body and its organs. One system transports oxygen and carbon dioxide while the other transports nutrients and waste, allowing the rest of the body to run more efficiently. 
+
+The brain of a New Victorian is relatively the same visually, only scans show how different it is from its former self. The Meninges are thicker for added protection to the brain, the Dura mater remains strong against the skull and the Arachnoid mater, but is soft on the inside of its layers to cushion any impact. The Arachnoid and Pia mater are largely the same, compensating for greater impact damage. Each portion of the brain is expanded and the Interhemispheric Fissure is virtually gone, both halves of the brain melded together in a solid connection. The Cerebellum has increased in size and moved forward for space, placing the brainstem at an angle and forcing it to adapt, making it flexible and able to sustain more force. All of the lobes becoming interconnected have changed the way the brain works, now processing stimuli as a whole rather than independent of each other. Signals from the eyes to the Occipital lobe process vision which is sending signals to the Parietal lobe as processed. The Frontal lobe is also sending information to the Parietal lobe about smells, and secondary smells from the Parietal lobe, which is interpreted as a three-dimensional map of the surroundings in real time. All six senses being felt at once, processing the information, making decisions as its processed, little by little, reacting to situations in a near instant. In short, the New Victorian brains allows them to react while interpreting information through their senses as one process. 
+
+
+**New Victorian Parvus**
+
+Although mainly just considered as New Victorian, Parvus are medically distinct from the average New Victorian. Parvus are mostly born male but can sometimes be born female, however always have feminine traits, no matter the sex. They are always sterile and infertile, not even possessing the organs to produce reproductive material but otherwise maintain the same New Victorian anatomy with some differences. 
+
+Parvus on average measure at five foot four inches and have not being recorded taller than five foot ten inches. Parvus are almost always double jointed and have "softer" muscle fibers and skin, making them flexible and squishy. This makes them perfect for roles requiring tight fits and small spaces. 
